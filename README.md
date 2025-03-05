@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **ojuswisinghal.17@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1x3PCZFiv97FsWHAovGnX6-fVv-ldI6pb/view?usp=sharing](https://drive.google.com/file/d/1x3PCZFiv97FsWHAovGnX6-fVv-ldI6pb/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1x3PCZFiv97FsWHAovGnX6-fVv-ldI6pb/view?usp=sharing](https://drive.google.com/file/d/1lJB_TBDzEKCYEm2yb_JRNj_sUvs9LBQt/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
